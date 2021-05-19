@@ -1,0 +1,1 @@
+Uma oportunidade rara, fazer um curso intensivo patrocinado... Sem dúvida é espetacular!
